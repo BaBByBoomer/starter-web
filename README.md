@@ -6,6 +6,14 @@ This repository is for showing how Git and GitHub work
 
 Sample website with plenty of files for demos
 
-##Intro
+## Introduction
+
+mdn kjsdvnjavamlv 
+
+## Deployment
+
+dk jsa vsjak s'
 
 ## how to contri
+
+dsjnvajnava;v
