@@ -12,7 +12,7 @@ mdn kjsdvnjavamlv
 
 ## Deployment
 
-dk jsa vsjak s'
+dk jsa vsjak skvneajvnaevnakelvniaovnlavnkan
 
 ## how to contri
 
