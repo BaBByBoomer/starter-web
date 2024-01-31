@@ -24,3 +24,7 @@ dsjvkajfvnjafkvnkjvnak
 ## djvkhbakvkal
 
 fdm njkd k
+
+## COPYRIGHT
+
+2024
